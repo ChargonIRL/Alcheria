@@ -1,0 +1,13 @@
+All across [[Locath]] a multitude of different deities exist however within [[Alcheria]] you will mainly find 7 with 1 being officially recognised and an 8th that has almost fully been forgotten. The main deity followed by most in [[Alcheria]] is [[Argath]], the deity was brought over during the colonisation of [[Alcheria]] and the [[War of the Magic]]. All of the [[Seven Tribes]] followed different deities however after the war and the building of the [[Zulis Configuration]] the tribes united and put all their gods into a pantheon to show that all their interpretations were correct for cultural unity. 
+
+The Pantheon includes:
+- [[Baroe]] the god of the Sky Aarakocra
+- [[Purlon]] the goddess of Death Dragonborn
+- [[Micil]] the god of Abundance Goblin
+- [[Zorath]] the god of War Goliath
+- [[Cyrs]] the goddess of Love Orc
+- [[Nirbul]] the god of the Land Tabaxi
+- [[Tapol]] the goddess of the Sea Water Genasi 
+
+
+Over time and due to the [[Tirmu]] tribe's lack of cohesion with the other tribes, [[Zorath]] was slowly faded out of the pantheon and now is only worshipped by fringe cults around [[Alcheria]]. Many of the cults believe that [[Zorath]] will return and bring the destruction of the south for the suffering they caused towards the [[Seven Tribes]]. The last remnants you could see of people worshipping [[Zorath]] is in some ruined temples and the [[Zulis Configuration]] in which he is presented as a cautionary tale about the dangers of the tribes not working together.
