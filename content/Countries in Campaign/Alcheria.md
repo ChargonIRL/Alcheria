@@ -4,7 +4,7 @@ Alcheria is a kingdom and is the largest country in the [[Zurag]] continent on [
 Other cities include:
 - [[Ingaran]] a coastal city in the southern most point of Alcheria and a main port for trading with [[Mulca]] and [[Voltara]]
 - [[Yrrdstill]] the biggest city in the north and is near to the [[Zulis Configuration]]
-- [[Turzil]]  the second biggest city in Alcheria and home to the [[Perzath Academy]]
+- [[Turzil]] the second biggest city in Alcheria and home to the [[Perzath Academy]]
 - [[Crimsworth]] the main point of industry in Alcheria where a lot of new technology gets developed
 - [[Miaxin]] is a city on the border of Alcheria and [[Griweth]]
 - [[Lazil]] is city built into the [[Molden Mountains]]

@@ -1,1 +1,3 @@
-TBC
+The Zarm tribe are a group of orcs that worship the Goddess of Love [[Cyrs]]. They are the second friendliest tribe to outsiders as they believe that all deserve love but can tell when some are consumed in hate and so will be wary around them. They were originally situated in modern [[Miaxin]] and had a good relationship [[Griweth]] unlike modern [[Alcheria]]. Zarm orcs are known to be spokespeople for those in the north as they are quite persuasive in the arguments and have been able to get the north more funding for their towns.
+
+The Zarm tribe is represented by the colour pink and their symbol is a heart

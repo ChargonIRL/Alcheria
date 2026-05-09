@@ -3,9 +3,9 @@ The Seven Tribes were tribes that inhabited all of [[Alcheria]] over 1000 years 
 
 The Seven Tribes include:
 - [[Apocian]] a tribe of Aarakocras
-- [[Harpion]] a tribe of Water Gensai
+- [[Harpion]] a tribe of Water Genasi
 - [[Zarm]] a tribe of Orcs
 - [[Tirmu]] a tribe of Goliaths
-- [[Palgen]] a tribe of Dragonborns
+- [[Palgen]] a tribe of Dragonborn
 - [[Krulax]] a tribe of Goblins
 - [[Limen]] a tribe of Tabaxi

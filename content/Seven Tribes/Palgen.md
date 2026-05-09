@@ -1,1 +1,3 @@
-TBC
+The Palgen tribe are group of dragonborn who worship the Goddess of Death [[Purlon]] through their entire lives. Palgen dragonborn are known to have originated in modern day [[Turzil]] and are said to be the reason for the potent magical energy surrounding the city. Palgen dragonborn are easy to spot as they intricately paint purple paint on themselves in patterns to show their love of [[Purlon]]. They are neutral on all as they believe that this life is merely the journey towards the destination of the afterlife. They do not believe in violence as they believe [[Purlon]] will take people when they are ready and violence upsets this natural balance.
+
+The Palgen tribe is represented by the colour purple and their symbol is infinity similar to the [[Zulis Configuration]].
