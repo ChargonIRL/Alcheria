@@ -1,1 +1,1 @@
-TBC
+Lazil is a city located in the [[Molden Mountains]] and was the home of the [[Tirmu]] tribe. Near the end of the [[War of the Magic]] the Alcherian army attacked and overwhelmed the tribe and tore the city to the ground to rebuild in their own way. Modern times the city is seen as stain on [[Alcheria]] as the bloody battle was seen as the worst of the war. Those living there are seen as despicable as they seem to have a lack of care over why they are able to live in such a place. Although some simply were born there and don't want to leave what they see as their home.
