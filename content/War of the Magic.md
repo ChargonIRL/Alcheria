@@ -1,1 +1,10 @@
-TBC
+The War of the Magic was a brutal and bloody war that was started 100 years ago and lasted 5 years. The war was between the invading Alcherian army and the [[Seven Tribes]], [[King Luran]] wished to add more land to his kingdom and so thought it would be an easy victory. A lot of battles occurred between the tribes and the invading force and for an amount of time the [[Seven Tribes]] managed to stave off the Alcherian army. However soon [[King Luran]] brought reinforcements and managed to sweep through the [[Southern half of Alcheria]]. This caused the tribes in the south to flee past the [[Molden Mountains]] believing that the mountains would be a hinderance to the army.
+
+The final battle of the war would be occur at the town of [[Lazil]] against the [[Tirmu]] tribe and would be the bloodiest battle in the entire war. A lot of people in the south are led to believe that the war was great as it allows Alcheria to still thrive and prosper, however most also agree that the battle of [[Lazil]] was a disgusting affair. 
+
+[[King Luran]] had heard that the [[Tirmu]] tribe had worshipped the God of War [[Zorath]] and so brought in an exorbitant amount of reinforcements for what he thought would be a tough battle. Unfortunately this was a mistranslation as [[Zorath]] is more likely to be referred to as the God of Protection and so the ensuing battle was more of an execution of the [[Tirmu]] people than an even fight. 
+
+Hearing of this battle the other tribes came together to negotiate with [[King Luran]] as they didn't want to face his wrath, and together the land became part of the Alcherian Kingdom.
+
+Unfortunately in the Alcherian Kingdom strife was growing due to the war and a revolution formed to oust [[King Luran]] from the throne. Due to the king being in modern day [[Alcheria]] along with the majority of the army the revolution was quite successful in kicking out the monarchy and formed modern day [[Drozag]]. [[King Luran]] then declded to name the new land he conquered [[Alcheria]].
+

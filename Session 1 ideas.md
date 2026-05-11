@@ -1,0 +1,1 @@
+Start them in the capital during a celebration of 100 years since the war of the magic
