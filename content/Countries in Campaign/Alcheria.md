@@ -1,3 +1,5 @@
+Pronounced: Al-care-ia
+
 Alcheria is a kingdom and is the largest country in the [[Zurag]] continent on [[Locath]]. It is located in the Northern Hemisphere and is split into two distinct halves by the [[Molden Mountains]]. The [[Southern half of Alcheria]] is densely populated with the majority of major cities located there, with the [[Northern half of Alcheria]] being home to more small tribes. There is some animosity from the northern tribes towards those living in the south as the majority of money is spent on improving the lively hoods of those in the south. Those in the south have hardly any ill will to the north with a lot empathising with their struggles. The south holds the capital of Alcheria, [[Progenis]] where [[King Acaron]] and [[Queen Namoca]] reside. Alcheria is a monarchy that stretches back 100 years to the end of the [[War of the Magic]] when [[King Luran]] seized power by manipulating the [[Seven Tribes]].
 
 Other cities include:

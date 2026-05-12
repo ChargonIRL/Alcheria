@@ -1,1 +1,3 @@
+Pronounced: In-gar-an
+
 Ingaran is a coastal city and is the southern most point in all of [[Alcheria]] and is used as a port to trade with [[Mulca]] and [[Voltara]] in recent times. It was originally home to the [[Harpion]] tribe as they believed they lived next to their deity the Goddess of the Sea [[Tapol]]. Ingaran is a nice destination for people to visit as the coastal city focuses heavily on tourism as a way to improve the livelihood of those living there. Some people in Ingaran aren't a fan of the tourists as they see them as irritating and annoying to deal with. However overall it is seen as a net benefit for the city. 
