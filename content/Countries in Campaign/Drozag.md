@@ -1,1 +1,1 @@
-TBC
+Drozag was formerly known as [[Alcheria]] but during the [[War of the Magic]] a revolution began to form to overthrow [[King Luran]] as the people were tired of the class divide prevalent in the country at the time. The revolution was a success and [[King Luran]] and people siding with the monarchy fled to modern day [[Alcheria]] which it is situated south west of. It is ruled in a democracy.

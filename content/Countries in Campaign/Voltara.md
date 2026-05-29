@@ -1,2 +1,2 @@
 Pronounced: Vol-tar-a
-TBC
+Voltara is situated to the north west of [[Alcheria]] with the border being past the [[Molden Mountains]]. Many Alcherians are opposed to the positive relations between [[Alcheria]] and Voltara due to Voltara being built by slavery of dwarves and being in essence a dictatorship. Despite this there are still much trading happening between the two nations.

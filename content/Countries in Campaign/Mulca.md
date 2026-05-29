@@ -1,2 +1,2 @@
 Pronounced: Mul-ka
-TBC
+Mulca is an island nation off the eastern coast of [[Alcheria]]. They have quite a positive relationship with the Alcherian nation trading with each other more over the past 30 years. They are a democratic nation with an elected head of state and due to being an island mainly export fish.
